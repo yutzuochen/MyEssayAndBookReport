@@ -22,5 +22,5 @@ With open mind, kind heart and curious feet, go explore your life.
 歡迎聯繫我，分享你的心得或故事 🙌  
 <br>
 
-Email:yutzuochen@gmail.com  
-Line:jade_left
+Email : yutzuochen@gmail.com  
+Line : jade_left
